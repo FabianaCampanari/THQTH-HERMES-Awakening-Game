@@ -394,7 +394,17 @@ https://github.com/user-attachments/assets/875fa917-0aed-469f-93c4-45d3bfd1e16e
 
 ### [Ancient Quatria - The Truth Set YQU Free ](https://lostbooks.gumroad.com/l/quatria-conspiracy)
 
+
 <br>
+
+
+
+<p align="center"> 
+  <img src="https://github.com/user-attachments/assets/28f901a0-7e22-49c4-87f3-3919055a208a" />
+
+
+<br><br>
+
 
 <p align="center"> 
   <img src="https://github.com/user-attachments/assets/e2e15e61-e380-4414-beba-713c161c882d" />
